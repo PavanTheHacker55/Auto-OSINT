@@ -1,1 +1,1 @@
-# Simple Automated **Open-Source Intelligence& Tool
+# Simple Automated *Open-Source Intelligence& Tool
